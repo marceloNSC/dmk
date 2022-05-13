@@ -1,1 +1,1 @@
-# dmk
+# dmkdicas rapidas
